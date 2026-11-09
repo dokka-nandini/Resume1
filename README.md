@@ -4,3 +4,4 @@ thisukonira leda ela vachiari bus lo na enti nanna go and take no-one is there g
 
 
 11 Wednesday work from home ivvaru
+afternoon sick leave pedutha
