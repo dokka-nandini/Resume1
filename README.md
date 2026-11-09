@@ -10,3 +10,4 @@ same nanna Vastha ley pls pray don't think over thinnu
 
 
 not able to control full water coming and crying I am also crying and now start stomach pain may be period pain full chala chala pain just now start full pain
+naku kuda same headache full crying annna bayataki tesukoni velladu
