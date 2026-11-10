@@ -13,6 +13,6 @@ no use ley vadu m c 7 8888 bye i will i msg u all are there clear all repository
 nuvvu crying anaku naku water vasthunnayi em cheyyalo artham kaley naukri pro tesukuntunna ok na 
 
 
-see imp jagadesh call ettaledhu sneha etttaledhu Krishna kuda ettaledhu em cheyyali 
+see imp jagadesh call ettaledhu sneha etttaledhu Krishna kuda ettaledhu em cheyyali I said don't call shena and Krishna mari y call vallu intlo unnaru ra don't call any one. thisukoni po ra headache vasthudi netho naku I said don't call anni mari call ante vallu gl
 
 one wheels , nee dresses anni black bag lo pettina, one bucket and big bedsheet, one shoes bag em cheyyali bro
