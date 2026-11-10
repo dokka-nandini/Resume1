@@ -11,3 +11,8 @@ em papam chesam devuduninni kastalu icchadu don't blame God just pray tell to Go
 
 no use ley vadu m c 7 8888 bye i will i msg u all are there clear all repository bye tc nanna thinnu nenu ok ley tc kanna 8
 nuvvu crying anaku naku water vasthunnayi em cheyyalo artham kaley naukri pro tesukuntunna ok na 
+
+
+see imp jagadesh call ettaledhu sneha etttaledhu Krishna kuda ettaledhu em cheyyali 
+
+one wheels , nee dresses anni black bag lo pettina, one bucket and big bedsheet, one shoes bag em cheyyali bro
