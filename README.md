@@ -23,4 +23,4 @@ ok hlo 7 everything is fine
 chala crying ra eppudu vasthavo teliyadhu 
 life kastanga Mari di asal ento life ento 
 
-nijanga ra 1st time chala chala miss avuthunna ra
+nijanga ra 1st time chala chala miss avuthunna ra same 8 more 7 c tc Vastha pls tc 78
