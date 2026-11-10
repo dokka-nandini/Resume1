@@ -19,3 +19,8 @@ one wheels , nee dresses anni black bag lo pettina, one bucket and big bedsheet,
 
 
 ok hlo 7 everything is fine 
+
+chala crying ra eppudu vasthavo teliyadhu 
+life kastanga Mari di asal ento life ento 
+
+nijanga ra 1st time chala chala miss avuthunna ra
