@@ -16,3 +16,6 @@ nuvvu crying anaku naku water vasthunnayi em cheyyalo artham kaley naukri pro te
 see imp jagadesh call ettaledhu sneha etttaledhu Krishna kuda ettaledhu em cheyyali I said don't call shena and Krishna mari y call vallu intlo unnaru ra don't call any one. thisukoni po ra headache vasthudi netho naku I said don't call anni mari call ante vallu gl
 
 one wheels , nee dresses anni black bag lo pettina, one bucket and big bedsheet, one shoes bag em cheyyali bro
+
+
+ok hlo 7 everything is fine 
