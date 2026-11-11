@@ -1,37 +1,82 @@
-I call to app source company you send walkin this consultant i think they ask to resume first and then we will call ur like that they sir said I send resume already ok na we will see mari ravala vada
+[11/11, 1:03 PM] N: DESIGN ON EFFICIENT ADAPTIVE LMS FILTER FOR NOISE 
+REDUCTION IN ECG
+[11/11, 1:04 PM] N: Electrocardiogram (ECG) signals are often corrupted by various types of noise, 
+CONCLUSION
+including power line interference, baseline wander, muscle artifacts, and electrode 
+motion artifacts.
+An Adaptive Least Mean Squares (LMS) Filter is a widely used technique for 
+noise reduction in ECG signals due to its ability to adaptively adjust filter 
+coefficients to minimize the error signal
 
 
-you say can I stay here or go to pg na present some day undu chudu ok na nenu ravala vada group lo add cheyledu i tell my dad group lo add ledu vadu ley ani ok na or not fast 
-
-group lo add chesthey ra ledantey vaddu ley  u think but tc doubt teppinchukoku pls vacchi em lekunda untey
-next time allow cheyyaru
-ranu ley inka group add cheyledu i send majeeth sir also no reply ok pray God gives best prayer ranu inka ok kada 8 crying 7
-
-em papam chesam devuduninni kastalu icchadu don't blame God just pray tell to God forgive our mistakes i tell dad I am not coming tc 8
-
-no use ley vadu m c 7 8888 bye i will i msg u all are there clear all repository bye tc nanna thinnu nenu ok ley tc kanna 8
-nuvvu crying anaku naku water vasthunnayi em cheyyalo artham kaley naukri pro tesukuntunna ok na 
+my college project name 
+and apply today only tmr last to apply tcs ok na 
 
 
-see imp jagadesh call ettaledhu sneha etttaledhu Krishna kuda ettaledhu em cheyyali I said don't call shena and Krishna mari y call vallu intlo unnaru ra don't call any one. thisukoni po ra headache vasthudi netho naku I said don't call anni mari call ante vallu gl
+eu ok na tc 78 m8 
 
-one wheels , nee dresses anni black bag lo pettina, one bucket and big bedsheet, one shoes bag em cheyyali bro
+Looking for trained Fresher Profiles
+
+                                   Job code: 12569
+                                       
+                      Skill 1- Java Fullstack (Fullstack Developer)
+                      Skill 2- SW Testing (QA Engineer)
+                                         
+Qualification- BE/B.TECH
+Batch- 2025/2026
+Location- Bangalore (Indira nagar)
+Interview mode - F2F(Probably this week)
+CTC - 3LPA
+Bond- 1.6 Years
+
+Apply link - https://forms.gle/gCF89aKxfQHvPkyE9
+
+Note- For SW Testing- Male candidates only
+
+📌Candidates should have good communication skill
+
+📌 Well-versed candidates with strong skills are required.
+
+📌Course completion mandatory
+
+Kindly share the interested candidate's profiles with your respective Team coordinators
+
+Process will be halted by today 7:00 PM .So share the resumes before 7:00  PM
+
+As we have informed you, we will not be shortlisting the resumes if the students didn't mention the training and Institute details in their resume
+
+may interview this week I will come ok na tc 7
+vastha
 
 
-ok hlo 7 everything is fine 
+[11/11, 6:46 PM] N: Hello Sir,
 
-chala crying ra eppudu vasthavo teliyadhu 
-life kastanga Mari di asal ento life ento 
+I am interested in the Java Full Stack job (Job Code: 12569) in Bangalore(indiranagar).
 
-nijanga ra 1st time chala chala miss avuthunna ra same 8 more 7 c tc Vastha pls tc 78
+Please consider my profile .
+Name: Dokka Nandini 
+Mobile:7671942008
 
-tc 8 7  read health ok na 7 
-birthday came inform me ok don't worry vasthudi i will tell prayer I am field in graden ok bye thinnava tc 87 thinnu po
+Thank you, Sir.
+[11/11, 6:50 PM] Majeeth Sir BT: https://forms.gle/zYigctLSQMKduQs27 -12569
 
-birthday Ela ra
-thinna biryani younwhat emate 
-okna health stomach pain thagginda vasthu ley bye gn
-7 ok good nena mutton today papu and ladies finger fry ok no pain 
+fill this link asap
 
 
-7 ra more 7 8
+I am already fill this sir ok annaru
+
+
+
+prayer I am reading ok na tc Vastha interview ki may this week or next week 
+
+
+
+eu ec ok 77
+
+birthday vasthudi ley some pain start may 13 ala ok na don't worry nanna 
+
+
+prayer for my health and interview to get job 
+no 3 ok na only 7 pure ok na more8
+
+read all msg bye gn padukota may be tc gn
