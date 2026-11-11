@@ -27,3 +27,8 @@ nijanga ra 1st time chala chala miss avuthunna ra same 8 more 7 c tc Vastha pls 
 
 tc 8 7  read health ok na 7 
 birthday came inform me ok don't worry vasthudi i will tell prayer I am field in graden ok bye thinnava tc 87 thinnu po
+
+
+thinna biryani younwhat emate 
+okna health stomach pain thagginda
+7
