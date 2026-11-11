@@ -32,3 +32,6 @@ birthday Ela ra
 thinna biryani younwhat emate 
 okna health stomach pain thagginda vasthu ley bye gn
 7 ok good nena mutton today papu and ladies finger fry ok no pain 
+
+
+7 ra more 7 8
