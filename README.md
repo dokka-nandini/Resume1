@@ -30,5 +30,5 @@ birthday came inform me ok don't worry vasthudi i will tell prayer I am field in
 
 birthday Ela ra
 thinna biryani younwhat emate 
-okna health stomach pain thagginda
+okna health stomach pain thagginda vasthu ley bye gn
 7 ok good nena mutton today papu and ladies finger fry ok no pain 
