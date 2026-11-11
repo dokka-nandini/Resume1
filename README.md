@@ -24,3 +24,6 @@ chala crying ra eppudu vasthavo teliyadhu
 life kastanga Mari di asal ento life ento 
 
 nijanga ra 1st time chala chala miss avuthunna ra same 8 more 7 c tc Vastha pls tc 78
+
+tc 8 7  read health ok na 7 
+birthday came inform me 
